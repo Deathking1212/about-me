@@ -1,5 +1,8 @@
 # For Fun
-•i watch anime 
+•i watch anime
+
 •play fighting games
-•go out alot 
+
+•go out alot
+
 •watch old history documentaries
